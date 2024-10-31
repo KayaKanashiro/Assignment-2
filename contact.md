@@ -1,1 +1,2 @@
-Contact information here
+## Contact
+kana0868@mylaurier.ca
