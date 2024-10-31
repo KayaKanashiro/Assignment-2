@@ -1,4 +1,3 @@
-Experience 1 here
 ## Tim Hortons Musical 
 
 I was in Tim Hortons 60th anniversary musical.
